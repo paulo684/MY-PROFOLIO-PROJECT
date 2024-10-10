@@ -1,2 +1,2 @@
 # MY-PROFOLIO-PROJECT
-This my profolio i created 
+Hey check out my very first Profolio Project
